@@ -6,7 +6,6 @@ Phil ist der Hauptcharakter in Andreas Steinhöfels Roman "Die Mitte der Welt" u
 
 * Freundin: Kat
 * Schwester: Dianne
-* Aussehen: super cute
 * Schauspieler: Louis Hofmann
 * Freund: Nicholas
 
